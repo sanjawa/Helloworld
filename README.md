@@ -1,2 +1,2 @@
 # Hello Everyone
-Show your ability
+Show your skills
